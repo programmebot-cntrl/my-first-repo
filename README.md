@@ -14,4 +14,5 @@ ive been using technologies for various desktop apps, and some game develoment l
 
 #### My Social Media
 this is my [Instagram](instagram.com/mrfunkybot)
-and for more professional info [linkedin](https://www.linkedin.com/in/alejandro-ramos-6b5939402/)
+
+Professional  [linkedin](https://www.linkedin.com/in/alejandro-ramos-6b5939402/)
